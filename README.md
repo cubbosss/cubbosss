@@ -4,6 +4,6 @@
 
 
                  𑣲 im a very anxious person so i might not always answer
- ˢᵗⁱᶜᵏⁱᵉᵏᵉʸ <img width="590" height="419" alt="a" src="https://github.com/user-attachments/assets/1171ea45-abe3-464f-9882-7839d9dc0021" />
+ ˢᵗⁱᶜᵏⁱᵉᵏᵉʸˢ<img width="590" height="419" alt="a" src="https://github.com/user-attachments/assets/1171ea45-abe3-464f-9882-7839d9dc0021" />
 
 
